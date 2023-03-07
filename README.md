@@ -1,4 +1,4 @@
-### HEY, I'M Tatiane Alencar image.png:
+### HEY, I'M Tatiane Alencar :raising_hand_woman:
 
 
 - 🔎 QA Tester Trainee
